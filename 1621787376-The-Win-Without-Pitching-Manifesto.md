@@ -39,7 +39,7 @@ selling is about determining a fit between the buyer’s need and the seller’s
 supply (our very objective) and then facilitating a next step.
 
 Location: 381    
-He moves from unaware of his problem or opportunity, to being interested in
+He (the Client) moves from unaware of his problem or opportunity, to being interested in
 considering the opportunity, and finally, to intent on acting on it. As he
 progresses in this manner, our role must change from one of helping, to
 inspiring, and ultimately to reassuring.
