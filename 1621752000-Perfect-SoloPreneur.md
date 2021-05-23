@@ -1,6 +1,6 @@
 # 1621752000 Perfect-SoloPreneur
 
-They Call Me Hoz. (December 31, 2018). Perfect SoloPreneur: If I Had to Start Again...   
+[They Call Me Hoz. (December 31, 2018). Perfect SoloPreneur: If I Had to Start Again...](https://www.amazon.com/dp/B07MP893Q6)   
 
 Page: 66   
 Putting that in today’s context: you are a brand. You may not be a popular brand, but you’re a brand all the same.

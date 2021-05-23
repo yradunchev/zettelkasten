@@ -1,6 +1,6 @@
 # 1621752868 The-Toilet-Paper-Entrepreneur
 
-Michalowicz, M. (November 30, 2013). The Toilet Paper Entrepreneur: The tell-it-like-it-is guide to cleaning up in business, even if you are at the end of your roll. Obsidian Launch, LLC   
+[Michalowicz, M. (November 30, 2013). The Toilet Paper Entrepreneur: The tell-it-like-it-is guide to cleaning up in business, even if you are at the end of your roll. Obsidian Launch, LLC](https://www.amazon.com/dp/B002P8MEFE)
 
 Page: 10   
 I’m too old to start a company – So what are you going to do about it? Wait
