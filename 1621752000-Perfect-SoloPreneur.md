@@ -19,7 +19,7 @@ Page: 137
 Success takes a lot of hard work, but hard work does not always equal success.
                 
 Page: 137   
-* * * Nothing works, at least the first time, and probably not the second, third, or fourth time either. You have to keep refining and trying. It’s not optional.
+Nothing works, at least the first time, and probably not the second, third, or fourth time either. You have to keep refining and trying. It’s not optional.
                 
 Page: 142   
 You’re already a brand. Manage it carefully and cover your backside today so it doesn’t bite you tomorrow.
