@@ -1,6 +1,6 @@
 # 1621752868 The-Toilet-Paper-Entrepreneur
 
-###The Toilet Paper Entrepreneur: The tell-it-like-it-is guide to cleaning up in business, even if you are at the end of your roll.   
+The Toilet Paper Entrepreneur: The tell-it-like-it-is guide to cleaning up in business, even if you are at the end of your roll.   
 Mike Michalowicz
 
 Page: 10   
