@@ -1,7 +1,7 @@
 e zettelkasten
 
 ## Lnks
- - [1621753249-biblio.md](Book notes)
- - [1620238500-register.md](Bits & Pieces)
+ - [Book Notes](1621753249-biblio.md)
+ - [Bits&Pieces](1620238500-register.md)
 
 
