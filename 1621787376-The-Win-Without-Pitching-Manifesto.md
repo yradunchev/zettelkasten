@@ -117,4 +117,3 @@ losing business on price occasionally, then we are not charging enough.
 
 # Links
 - [1621753249-biblio.md](1621753249-biblio.md)
-- [1621753249-biblio.md](1621753249-biblio.md)
