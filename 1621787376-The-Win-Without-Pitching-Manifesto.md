@@ -1,6 +1,6 @@
 # 1621787376 The-Win-Without-Pitching-Manifesto
 
-Enns B. (March 13, 2019). The Win Without Pitching Manifesto. Gegen Press
+[Enns B. (March 13, 2019). The Win Without Pitching Manifesto. Gegen Press](https://www.amazon.com/dp/B07PPMGDLX)
 
 Location: 61    
 We must choose a focus Then articulate that focus via a consistent claim of
