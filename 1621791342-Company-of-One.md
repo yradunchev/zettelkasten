@@ -90,7 +90,5 @@ I’ve simply used my skills to help others, because I enjoy doing it.
 And I’ve offered this help for free, in small doses at first, and then later for
 good money in larger doses.
 
-@tag
-
 ## Links
 - [1621753249-biblio.md](1621753249-biblio.md)
